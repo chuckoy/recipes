@@ -5,6 +5,7 @@
 * 1/2 tsp
 * 1/4 tsp
 * 10 inch cast iron skillet
+* hand mixer or whisk
 
 ## Optional
 * 1 cup
