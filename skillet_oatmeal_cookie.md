@@ -24,19 +24,21 @@
 * 1/2 tsp baking soda
 * 1/4 tsp baking powder
 * 1 1/2 old-fashioned oats (rolled, not quick)
-* 1/2 cup semi-sweet chocolate chips (too sweet if using milk chocolate chips)
+* 1/2 cup semi-sweet chocolate chips
 
 # Steps
-1. mix flour, salt, baking soda, and baking powder in bowl
-2. soften butter
-3. mix butter and brown sugar in large bowl
-4. add vanilla and egg, whisk
-5. add dry stuff from bowl to large bowl, whisk
-6. add oats, whisk
-7. add choc chips, mix a bit
-8. (optional) store cookie dough in fridge for a few hours
-9. transfer to skillet and flatten a bit
-10. oven to 175C
-11. bake for 15 mins
-12. remove and let cool
+1. Mix flour, salt, baking soda, and baking powder in bowl
+2. Soften butter
+3. Mix butter and brown sugar in large bowl
+4. Add vanilla and egg, whisk
+5. Add dry stuff from bowl to large bowl, whisk
+6. Add oats, whisk
+7. Add choc chips, mix a bit
+8. (optional) Store cookie dough in fridge for a few hours
+9. Transfer to skillet and flatten a bit
+10. Oven to 175C
+11. Bake for 15 mins
+12. Remove and let cool
 
+# Notes
+* Used 1 cup brown sugar, 1/2 cup milk choc chips, and a bit more as toppings as it cooled. Was too sweet.
