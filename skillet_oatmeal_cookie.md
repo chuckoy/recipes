@@ -29,9 +29,9 @@
 # Steps
 1. mix flour, salt, baking soda, and baking powder in bowl
 2. soften butter
-3. mix butter and brown sugar
+3. mix butter and brown sugar in large bowl
 4. add vanilla and egg, whisk
-5. add dry from bowl, whisk
+5. add dry stuff from bowl to large bowl, whisk
 6. add oats, whisk
 7. add choc chips, mix a bit
 8. (optional) store cookie dough in fridge for a few hours
