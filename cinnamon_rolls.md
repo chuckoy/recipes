@@ -24,3 +24,7 @@
 4. Sprinkle filling over dough
 5. Roll and slice (try to stretch dough as you roll)
 6. (optional) Seal last fold with water?
+7. Bake at 200C for 15-18 mins (20 kinda made it crispy)
+
+# Notes
+* Try using half-milk half-water when making dough
