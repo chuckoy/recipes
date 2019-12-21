@@ -27,7 +27,7 @@
 * 3 cups old-fashioned oats (rolled, not quick)
 
 ## Fudge
-* 1 can condensed milk (395g)
+* 3/4 can condensed milk (1 can = 395g)
 * 1 cup dark baking chocolate
 * 1 tbsp butter
 * 1 tsp vanilla
