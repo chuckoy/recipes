@@ -14,8 +14,8 @@
 * butter to grease dough
 
 ## Filling
-* 1/2 cup brown sugar
-* 1 tbsp ground cinnamon
+* 1/6 cup brown sugar
+* 1/3 tbsp ground cinnamon
 
 # Steps
 1. Flatten dough into rectangular shape
@@ -24,7 +24,7 @@
 4. Sprinkle filling over dough
 5. Roll and slice (try to stretch dough as you roll)
 6. (optional) Seal last fold with water?
-7. Bake at 200C for 15-18 mins (20 kinda made it crispy)
+7. Bake at 180C for 15 mins
 
 # Notes
 * Try using half-milk half-water when making dough
