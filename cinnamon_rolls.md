@@ -28,3 +28,4 @@
 
 # Notes
 * Try using half-milk half-water when making dough
+* Do half-milk half-water but because milk has less water due to other substances in it, perhaps x1.5 the volume of the milk works
