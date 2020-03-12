@@ -21,11 +21,11 @@
 
 ## Dry
 * 1/2 cup all purpose flour
-* 1/4 tsp salt
+* 1/4 tsp salt (this is the upper bound to not taste too salty, careful not to go over!)
 * 1/2 tsp baking soda
 * 1/4 tsp baking powder
 * 1 1/2 old-fashioned oats (rolled, not quick)
-* 1/2 cup semi-sweet chocolate chips
+* 1/2 cup dark chocolate chips
 
 # Steps
 1. Mix flour, salt, baking soda, and baking powder in bowl
