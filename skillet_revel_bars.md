@@ -1,3 +1,5 @@
+![Chuck](https://i.imgur.com/3U864H8.jpg)
+
 # Utensils/Kitchenware
 
 ## Core
