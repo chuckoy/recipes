@@ -12,7 +12,7 @@
 * 1/4 tsp instant or active dry yeast
 * 1 cup water
 * 3/4 tsp salt
-* as much flour as needed to get the right consistency (start with 1 1/2 and add as you mix) (note: 1 cup on top of 1 1/2 seems to do the trick)
+* as much flour as needed to get the right consistency (start with 1 1/2 and add as you mix) (note: 3/4 cup on top of 1 1/2 seems to do the trick)
 * some olive oil (optional)
 
 # Steps
