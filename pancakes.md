@@ -10,6 +10,7 @@
 * 2 eggs
 * 300mL milk
 * pinch of salt
+* 1 tsp baking soda (trialing this out to see fluffiness)
 * some olive oil (optional)
 
 # Steps
