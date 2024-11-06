@@ -17,20 +17,20 @@
 
 ## Wet
 * 250g butter (1 cup)
-* 1 cup brown sugar
+* 220g brown sugar (1 cup)
 * 2 eggs
 * 2 tsp vanilla
 
 ## Dry
-* 1 cup all purpose flour
+* 150g all purpose flour (1 cup)
 * 1/2 tsp salt
 * 1 tsp baking soda
 * 1/2 tsp baking powder
-* 3 cups old-fashioned oats (rolled, not quick)
+* 300g old-fashioned oats (rolled, not quick) (3 cups)
 
 ## Fudge
 * 3/4 can condensed milk (1 can = 395g)
-* 1 cup dark baking chocolate
+* 200g dark baking chocolate (1 cup)
 * 1 tbsp butter
 * 1 tsp vanilla
 
