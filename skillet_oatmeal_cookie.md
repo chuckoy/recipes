@@ -17,17 +17,17 @@
 
 ## Wet
 * 113g butter (1/2 cup) (can be 125g)
-* 1/2 - 3/4 cup brown sugar (3/4 cup sweeter)
+* 110g brown sugar (1/2 cup)
 * 1 egg
 * 1 tsp vanilla
 
 ## Dry
-* 1/2 cup all purpose flour
+* 75g all purpose flour (1/2 cup)
 * 1/4 tsp salt (this is the upper bound to not taste too salty, careful not to go over!)
 * 1/2 tsp baking soda
 * 1/4 tsp baking powder
-* 1 1/2 old-fashioned oats (rolled, not quick)
-* 1/2 cup dark chocolate chips
+* 150g old-fashioned oats (rolled, not quick) (1 1/2 cup)
+* 100g cup dark chocolate chips (1/2 cup)
 
 # Steps
 1. Mix flour, salt, baking soda, and baking powder in bowl
