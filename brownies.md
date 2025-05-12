@@ -3,10 +3,10 @@
 ## Core
 
 - 1/2 cup
-- 1 tbsp
 - 1/2 tsp
-- 12 inch cast iron skillet
+- small baking tray
 - hand mixer or whisk
+- kitchen scale
 
 ## Optional
 
